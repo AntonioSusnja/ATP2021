@@ -30,7 +30,7 @@
 
 Zovem se Antonio Šušnja, rođen sam 24.12.1998. godine u Zadru, gdje sam uspješno završio osnovnu školu i gimnaziju Franje Petrića Zadar. Trenutačno, kao redovni student prve godine stručnog studija informacijske tehnologije u Zadru, se prijavljujem na natječaj za honorarnog suradnika za CARNET. 
 
-Razlog moje prijave za taj posao su najviše odlični uvjeti koje su me zaintrigirali, od  odličnog ambijenta za razvoj studenta ili širine različitih područja informatike i programiranja koja su u mogućnosti za usavršavanje. Uz to, posao nudi s jedne strane timsko okruženje što je odlično za poboljšanje komunikativnosti i kreativnosti, dok s druge strane potiču samostalnost i logično razmišljanje za poslovne zadatke.
+Razlog moje prijave za taj posao su najviše odlični uvjeti koje su me zaintrigirali, od odličnog ambijenta za razvoj studenta do širine različitih područja informatike i programiranja koja za svakog imaju nešto gdje se može dodatno usavršiti. Uz to, posao nudi s jedne strane timsko okruženje što je odlično za poboljšanje komunikativnosti i kreativnosti, dok s druge strane potiču samostalnost i logično razmišljanje za poslovne zadatke.
 
 Informatika kao područje znanosti i tehnologije je stalno promjenjivo, brzo, dinamično i široko, što za svakog od nas studenata omogućuje učenje o najnovijim tehnologijama i opremi, laboratorijskoj okolini i sudjelovanje u raznoraznim projektima. Zbog toga, smatram da ovaj posao stručnog suradnika nudi prijeko potrebno usavršavanje i nova znanja koja sam spreman naučiti. 
 
