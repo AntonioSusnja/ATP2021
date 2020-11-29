@@ -2,7 +2,7 @@
 
 ### Fotografija:
 
-![Profilna slika](img/profile.png)
+![Profilna slika]()
 
 ---
 
